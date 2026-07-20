@@ -394,5 +394,58 @@
 391. Why did the cookie cry? Its mom had been a wafer too long.
 392. Why did the banana go out with the prune? Because it couldn't find a date.
 
+# THE LIST — Batch 2
+
+393. Why can't orphans play hide and seek? Because nobody ever looks for them.
+394. Why do orphans go to church? So they have someone to call Father.
+395. What do my dad and Nemo have in common? Neither of them could be found.
+396. I have a stepladder. It's nice, but I never knew my real ladder.
+397. My daughter asked me if she was adopted. I said, "Not yet — nobody's shown any interest."
+398. My wife and I have decided we don't want children. If anybody does, we can drop them off tomorrow.
+399. My parents raised me as an only child. That really annoyed my brother.
+400. My son came home crying and said everyone at school calls him a liar. I said, "That's ridiculous — you're not even my son."
+401. "Dad, why is my sister named Teresa?" "Because your mom loves Easter, and Teresa is an anagram of it." "Thanks, Dad." "No problem, Alan."
+402. My grandma always said the way to a man's heart is through his stomach. Lovely woman. Terrible surgeon.
+403. I'll never forget my grandfather's last words: "Stop shaking the ladder, you little brats!"
+404. Right before my grandpa died, he asked, "How far do you think I can kick this bucket?"
+405. My grandfather said my generation relies too much on technology. So I unplugged his life support.
+406. I asked my grandpa, "After 65 years, you still call Grandma darling, beautiful, and honey. What's your secret?" He said, "I forgot her name ten years ago and I'm scared to ask."
+407. We lost Mom when we couldn't remember her blood type. Her last words were "Be positive," but it's so hard without her.
+408. Doctor: "I have bad news and worse news. The bad news is you have 24 hours to live." "What could possibly be worse than that?!" "I've been trying to reach you since yesterday."
+409. Doctor: "I have good news and bad news. The bad news is the disease is terminal. The good news is we're naming it after you."
+410. The doctor gave me a year to live, so I shot him. The judge gave me fifteen.
+411. My grief counselor died last week. He was so good, I don't even care.
+412. My therapist told me "time heals all wounds." So I stabbed him. Now we wait.
+413. You don't need a parachute to go skydiving. You need a parachute to go skydiving twice.
+414. Give a man a plane ticket and he flies for a day. Push him out of the plane and he flies for the rest of his life.
+415. What's the last thing to go through a skydiver's mind when his parachute fails? His feet.
+416. It's always sad when a clown dies. Fifty of his friends showed up to the funeral in one car.
+417. The man who invented throat lozenges died last week. There was no coffin at the funeral.
+418. My uncle wanted his ashes kept in his favorite beer glass. His last wish was to be Frank in Stein.
+419. I hate double standards. Burn a body at a crematorium and you're "doing your job." Do it at home and you're "destroying evidence."
+420. Technically speaking, the swimming pool on the Titanic is still full.
+421. Where did Joe go after wandering into the minefield? Everywhere.
+422. A death row inmate asked for strawberries as his last meal. "Sorry, they're out of season." "That's fine, I'll wait."
+423. The guy who stole my diary just died. My thoughts are with his family.
+424. I read that in London someone gets stabbed every 52 seconds. Poor guy.
+425. A good vocabulary matters. If I'd known the difference between "antidote" and "anecdote," my best friend would still be alive.
+426. Today was awful. First my ex got hit by a bus. Then I lost my job as a bus driver.
+427. My wife said she'd leave me if I didn't stop gambling. I'm really going to miss her.
+428. Knock knock. Who's there? Dave. Dave who? ...And Dave's heart breaks as he realizes his grandmother's Alzheimer's has gotten worse.
+429. Dark humor is like a kid with cancer. It never gets old.
+430. What do you call a dog with no legs? Doesn't matter — he's not coming.
+431. Where do you take a dog with no legs? Out for a drag.
+432. What's yellow and can't swim? A school bus full of kids.
+433. Say what you want about deaf people.
+434. A blind man walks into a bar. And a table. And a chair.
+435. I gave my blind friend a cheese grater for his birthday. He said it was the most violent thing he'd ever read.
+436. Never trust a man in a wheelchair with dirty shoes.
+437. My girlfriend dumped me, so I stole her wheelchair. Guess who came crawling back.
+438. An old lady at the ATM asked me to help check her balance. So I pushed her over.
+439. My wife asked why I carry a gun around the house. I said, "Decepticons." She laughed, I laughed, the toaster laughed. I shot the toaster.
+440. I love playing chess with old men in the park. The hard part is finding 32 of them.
+441. Never break someone's heart — they only have one. Break their bones instead; they have 206.
+442. My wife told me to take the spider out instead of killing it. We had a few drinks. Cool guy. Wants to be a web developer.
+
 ---
-**Total: 392 jokes | Batch 1 complete**
+**Total: 442 jokes | Batches 1–2 complete**
