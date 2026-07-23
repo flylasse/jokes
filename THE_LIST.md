@@ -447,5 +447,58 @@
 441. Never break someone's heart — they only have one. Break their bones instead; they have 206.
 442. My wife told me to take the spider out instead of killing it. We had a few drinks. Cool guy. Wants to be a web developer.
 
+# THE LIST — Batch 3
+
+443. Why did Timmy drop his ice cream? He got hit by a bus.
+444. I saw a road sign that said "Watch for children." Sounds like a fair trade.
+445. Whenever I have a headache, I take two aspirin and keep away from children — just like the bottle says.
+446. I got my son a fridge for his birthday. I can't wait to see his face light up when he opens it.
+447. My daughter wanted a Cinderella-themed birthday, so I made her clean the house while her sisters went to a party.
+448. I got kidnapped as a kid. My parents sprang into action — they rented out my room.
+449. My son asked, "Dad, can I have a book mark?" I burst into tears. Eleven years old and he still doesn't know my name is Brian.
+450. The police knocked on my door and said my dog was chasing a kid on a bike. My dog doesn't even have a bike.
+451. "Mom, what's it like to have the best daughter in the world?" "I don't know, sweetie. Ask your grandma."
+452. My mom never understood the irony of calling me a son of a bitch.
+453. I asked my wife to tell me something that would make me happy and sad at the same time. She said, "You have a bigger dick than your brother."
+454. What's the difference between a truckload of bowling balls and a truckload of dead babies? You can't unload bowling balls with a pitchfork.
+455. How many babies does it take to paint a wall? Depends how hard you throw them.
+456. How do you get a baby out of a blender? Doritos.
+457. What did the deaf, dumb, and blind kid get for Christmas? Cancer.
+458. What's blue and can't swim? The same school bus, a month later.
+459. What has four legs and one arm? A pit bull coming back from the park.
+460. What's the difference between an onion and a dead hooker? I cry when I chop up onions.
+461. What do you call an orphan taking a selfie? A family photo.
+462. Why did the orphan rob the bank? To feel wanted.
+463. Why are orphans so bad at poker? They've never had a full house.
+464. Who is an orphan's favorite superhero? Batman — his parents are dead too.
+465. My grandpa always said, "When one door closes, another opens." Lovely man. Terrible coffin maker.
+466. My dad always said laughter is the best medicine. Which I guess is why several of us died of tuberculosis.
+467. My dad also believed in fighting fire with fire. He was a terrible firefighter.
+468. My grandma started walking five miles a day when she turned 60. She's 97 now and we have no idea where she is.
+469. The best part of Alzheimer's? You meet new people every day, and you can hide your own Easter eggs.
+470. "Dad, how do stars die?" "Usually an overdose, son."
+471. My uncle's dying wish was for me to sit on his lap one last time. He was in the electric chair.
+472. My wife told me she wants to be cremated when she dies. I said, "How about Tuesday?"
+473. My wife and I took out life insurance policies on each other. Now it's just a waiting game.
+474. My boss asked, "Do you believe in life after death?" I said no. He said, "Interesting — because after you left early for your grandmother's funeral yesterday, she stopped by."
+475. At the funeral, I asked if I could say a word. "Plethora," I said. "Thanks," the widow whispered, "that means a lot."
+476. They say where there's a will, there's a way. In my family, where there's a will, there are relatives.
+477. The world's oldest man has died again. This is getting ridiculous — that's the tenth time this year.
+478. What do you call a dead magician? An abracadaver.
+479. When I see lovers' names carved into a tree, I don't think it's cute. I think it's weird how many people bring knives on dates.
+480. My wife left a note on the fridge that said, "This isn't working." I opened the fridge. It's working fine.
+481. My wife texted me, "Sex is way better on vacation." Not the best postcard to receive.
+482. Why was the cannibal late to dinner? He got the cold shoulder.
+483. A cannibal told his friend, "I really can't stand my mother-in-law." His friend said, "Then just eat the potatoes."
+484. The cannibal kid got expelled from school for buttering up his teacher.
+485. A cannibal is someone who walks into a restaurant and orders the waiter.
+486. "Doctor, how long do I have?" "Ten." "Ten what? Months? Weeks?" "Nine. Eight. Seven..."
+487. "Doctor, my family thinks I'm crazy because I love sausages." "Nonsense, I like sausages too." "Really? You should come see my collection — I've got hundreds."
+488. I suffer from kleptomania. When it gets bad, I take something for it.
+489. I was reading a horror story in braille. Something bad was about to happen — I could feel it.
+490. I have the heart of a lion. And a lifetime ban from the zoo.
+491. Why couldn't Helen Keller drive? Because she was a woman.
+492. Why did the leper crash his car? He left his foot on the gas.
+
 ---
-**Total: 442 jokes | Batches 1–2 complete**
+**Total: 492 jokes | Batches 1–3 complete**
