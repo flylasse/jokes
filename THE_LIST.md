@@ -393,6 +393,7 @@
 390. Why didn't the skeleton go to the party? He had no body to go with.
 391. Why did the cookie cry? Its mom had been a wafer too long.
 392. Why did the banana go out with the prune? Because it couldn't find a date.
+393. A man walks into a bar, pulls a tiny man out of his left pocket and a tiny piano out of his right, and sets them on the bar. The little man starts playing beautifully. The barman says, "Where the hell did you get that?" "There’s a genie down the road granting wishes." The barman runs off, and a few minutes later comes sprinting back followed by hundreds and hundreds of ducks, until the whole street is full of them. "That genie is fucking deaf! I asked for a million bucks, not a million ducks!" The man says, "Yeah. You think I asked for a twelve-inch pianist?"
 
 ---
-**Total: 392 jokes | Batch 1 complete**
+**Total: 393 jokes | Batch 1 complete**
