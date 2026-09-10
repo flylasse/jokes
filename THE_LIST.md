@@ -394,6 +394,20 @@
 391. Why did the cookie cry? Its mom had been a wafer too long.
 392. Why did the banana go out with the prune? Because it couldn't find a date.
 393. A man walks into a bar, pulls a tiny man out of his left pocket and a tiny piano out of his right, and sets them on the bar. The little man starts playing beautifully. The barman says, "Where the hell did you get that?" "There’s a genie down the road granting wishes." The barman runs off, and a few minutes later comes sprinting back followed by hundreds and hundreds of ducks, until the whole street is full of them. "That genie is fucking deaf! I asked for a million bucks, not a million ducks!" The man says, "Yeah. You think I asked for a twelve-inch pianist?"
+394. What did the elephant say to the naked man? "It's cute, but can you pick up peanuts with it?"
+395. What did one butt cheek say to the other? "Together we can stop this crap."
+396. A baby polar bear asks, "Mum, am I a real polar bear?" "Yes." "Dad, am I a real polar bear?" "Yes, why?" "Because I'm freezing."
+397. What do you call a deer with no eyes? No idea. What do you call a deer with no eyes and no legs? Still no idea.
+398. Two cows are standing in a field. One says, "Moo." The other says, "I was going to say that."
+399. What do you call a pig that does karate? A pork chop.
+400. A man walks into a bar with a giraffe. The giraffe collapses on the floor. The bartender says, "You can't leave that lyin' there." The man says, "That's not a lion, it's a giraffe."
+401. Why did the elephant sit on the marshmallow? So he wouldn't fall into the hot chocolate.
+402. What's grey and goes round and round? An elephant in a washing machine.
+403. What's the difference between a cat and a comma? One has claws at the end of its paws, the other a pause at the end of its clause.
+404. Why did the bicycle fall over? It was two tired.
+405. A man walks into a bar. Ouch.
+406. I bought some shoes from a drug dealer. I don't know what he laced them with, but I've been tripping all day.
+407. A dog walks into a telegraph office and writes, "Woof woof woof. Woof woof woof woof woof woof." The clerk says, "That's only nine words. You could add another woof for the same price." The dog says, "But that would make no sense."
 
 ---
-**Total: 393 jokes | Batch 1 complete**
+**Total: 407 jokes | Batch 1 complete**
