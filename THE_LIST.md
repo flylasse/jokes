@@ -407,6 +407,19 @@
 404. A man walks into a bar. Ouch.
 405. I bought some shoes from a drug dealer. I don't know what he laced them with, but I've been tripping all day.
 406. A dog walks into a telegraph office and writes, "Woof woof woof. Woof woof woof woof woof woof." The clerk says, "That's only nine words. You could add another woof for the same price." The dog says, "But that would make no sense."
+407. Two muffins are in an oven. One says, "Wow, it's hot in here." The other says, "Holy crap, a talking muffin!"
+408. Two snowmen are standing in a field. One says to the other, "Do you smell carrots?"
+409. How many surrealists does it take to change a lightbulb? A fish.
+410. What's the difference between a duck? One of its legs is both the same.
+411. What's red and smells like blue paint? Red paint.
+412. Two men walk into a bar. You'd think the second one would have noticed.
+413. Three logicians walk into a bar. The bartender asks, "Does everyone want a beer?" The first says, "I don't know." The second says, "I don't know." The third says, "Yes."
+414. A grasshopper walks into a bar. The bartender says, "We have a drink named after you!" The grasshopper says, "You have a drink called Steve?"
+415. What's E.T. short for? Because he's got little legs.
+416. Knock knock. Who's there? To. To who? To whom.
+417. A man walks into a bar with a newt on his shoulder. "What's his name?" "Tiny." "Why Tiny?" "Because he's my newt."
+418. Why was six afraid of seven? Because seven was a registered six offender.
+419. A termite walks into a bar and asks, "Is the bar tender here?"
 
 ---
-**Total: 406 jokes | Batch 1 complete**
+**Total: 419 jokes | Batch 1 complete**
