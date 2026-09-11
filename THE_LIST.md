@@ -394,6 +394,39 @@
 391. Why did the cookie cry? Its mom had been a wafer too long.
 392. Why did the banana go out with the prune? Because it couldn't find a date.
 393. A man walks into a bar, pulls a tiny man out of his left pocket and a tiny piano out of his right, and sets them on the bar. The little man starts playing beautifully. The barman says, "Where the hell did you get that?" "There’s a genie down the road granting wishes." The barman runs off, and a few minutes later comes sprinting back followed by hundreds and hundreds of ducks, until the whole street is full of them. "That genie is fucking deaf! I asked for a million bucks, not a million ducks!" The man says, "Yeah. You think I asked for a twelve-inch pianist?"
+394. What did the elephant say to the naked man? "It's cute, but can you pick up peanuts with it?"
+395. What did one butt cheek say to the other? "Together we can stop this crap."
+396. What do you call a deer with no eyes? No idea. What do you call a deer with no eyes and no legs? Still no idea.
+397. Two cows are standing in a field. One says, "Moo." The other says, "I was going to say that."
+398. What do you call a pig that does karate? A pork chop.
+399. A man walks into a bar with a giraffe. The giraffe collapses on the floor. The bartender says, "You can't leave that lyin' there." The man says, "That's not a lion, it's a giraffe."
+400. Why did the elephant sit on the marshmallow? So he wouldn't fall into the hot chocolate.
+401. What's grey and goes round and round? An elephant in a washing machine.
+402. What's the difference between a cat and a comma? One has claws at the end of its paws, the other a pause at the end of its clause.
+403. Why did the bicycle fall over? It was two tired.
+404. A man walks into a bar. Ouch.
+405. I bought some shoes from a drug dealer. I don't know what he laced them with, but I've been tripping all day.
+406. A dog walks into a telegraph office and writes, "Woof woof woof. Woof woof woof woof woof woof." The clerk says, "That's only nine words. You could add another woof for the same price." The dog says, "But that would make no sense."
+407. Two muffins are in an oven. One says, "Wow, it's hot in here." The other says, "Holy crap, a talking muffin!"
+408. Two snowmen are standing in a field. One says to the other, "Do you smell carrots?"
+409. How many surrealists does it take to change a lightbulb? A fish.
+410. What's the difference between a duck? One of its legs is both the same.
+411. What's red and smells like blue paint? Red paint.
+412. Two men walk into a bar. You'd think the second one would have noticed.
+413. Three logicians walk into a bar. The bartender asks, "Does everyone want a beer?" The first says, "I don't know." The second says, "I don't know." The third says, "Yes."
+414. A grasshopper walks into a bar. The bartender says, "We have a drink named after you!" The grasshopper says, "You have a drink called Steve?"
+415. What's E.T. short for? Because he's got little legs.
+416. Knock knock. Who's there? To. To who? To whom.
+417. A man walks into a bar with a newt on his shoulder. "What's his name?" "Tiny." "Why Tiny?" "Because he's my newt."
+418. Why was six afraid of seven? Because seven was a registered six offender.
+419. A termite walks into a bar and asks, "Is the bar tender here?"
+420. "Doctor, doctor, I've got a lettuce sticking out of my bum." "I'm afraid that's just the tip of the iceberg."
+421. Caveman invent fire. Caveman warm. Caveman very warm. Caveman invent running.
+422. My wife and I were happy for twenty years. Then we met.
+423. My wife said I never buy her flowers. To be honest, I didn't know she sold flowers.
+424. Roses are red, violets are blue. I have a gun. Get in the van.
+425. Why do blondes have TGIF on their shoes? Toes Go In First.
+426. I got a job at a guillotine factory. I'll beheading there shortly.
 
 ---
-**Total: 393 jokes | Batch 1 complete**
+**Total: 426 jokes | Batch 1 complete**
