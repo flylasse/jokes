@@ -420,6 +420,13 @@
 417. A man walks into a bar with a newt on his shoulder. "What's his name?" "Tiny." "Why Tiny?" "Because he's my newt."
 418. Why was six afraid of seven? Because seven was a registered six offender.
 419. A termite walks into a bar and asks, "Is the bar tender here?"
+420. "Doctor, doctor, I've got a lettuce sticking out of my bum." "I'm afraid that's just the tip of the iceberg."
+421. Caveman invent fire. Caveman warm. Caveman very warm. Caveman invent running.
+422. My wife and I were happy for twenty years. Then we met.
+423. My wife said I never buy her flowers. To be honest, I didn't know she sold flowers.
+424. Roses are red, violets are blue. I have a gun. Get in the van.
+425. Why do blondes have TGIF on their shoes? Toes Go In First.
+426. I got a job at a guillotine factory. I'll beheading there shortly.
 
 ---
-**Total: 419 jokes | Batch 1 complete**
+**Total: 426 jokes | Batch 1 complete**
