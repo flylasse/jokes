@@ -427,6 +427,7 @@
 424. Roses are red, violets are blue. I have a gun. Get in the van.
 425. Why do blondes have TGIF on their shoes? Toes Go In First.
 426. I got a job at a guillotine factory. I'll beheading there shortly.
+427. What does the King say when he loses in a chess game? I am rooked.
 
 ---
-**Total: 426 jokes | Batch 1 complete**
+**Total: 427 jokes | Batch 1 complete**
