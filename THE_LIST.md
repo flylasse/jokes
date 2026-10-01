@@ -431,6 +431,9 @@
 428. Where do butchers go to dance? The meatball.
 429. What's the difference between a duck? It can neither fly.
 430. Why did the man stare at the juice box? Because it said concentrate.
+431. I asked my daughter to put the cat out. She said, "I didn't know it was on fire."
+432. I asked my daughter to hand me the newspaper. She said, "Dad, nobody uses newspapers anymore. Here, use my iPad." WHACK. That fly never knew what hit it.
+433. What did the baby corn say to the mama corn? "Where's pop corn?"
 
 ---
-**Total: 430 jokes | Batch 1 complete**
+**Total: 433 jokes | Batch 1 complete**
